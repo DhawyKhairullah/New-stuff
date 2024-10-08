@@ -1,2 +1,2 @@
-# New_Stuffs
-## I don't know what i am doing.
+# Corn Diseases Kelompok 10
+## Anggota : Dhawy & Revi
